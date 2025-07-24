@@ -82,4 +82,4 @@
 
 ---
 
-### 👨‍💻 Made with 💡 by **Surya Prakash**
+### 👨‍💻 Made with ❤️ by **Surya Prakash**
